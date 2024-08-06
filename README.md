@@ -5,4 +5,4 @@
 - Insert your script
 - Execute
 
-![image](https://github.com/user-attachments/assets/4df6ab31-5374-45b7-ab1a-52c5d0221d3e)
+![image](https://th.bing.com/th/id/OIP.cj8tS8CCIrtGUPRGb_firAAAAA?rs=1&pid=ImgDetMain)
